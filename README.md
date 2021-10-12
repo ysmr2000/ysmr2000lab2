@@ -1,1 +1,1 @@
-# ysmr2000lab2
+# ysmr2000lab2.github.io
